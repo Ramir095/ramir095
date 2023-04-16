@@ -4,7 +4,7 @@
 <br><br></strong></p>
 
 <strong>
-<p>Feel free to text me on LinkedIn.<br>Will be a pleasure to answer you back 🙂</p>
+<p>Feel free to text me on Linkedin.<br>Will be a pleasure to answer you back 🙂</p>
 <a href="https://www.linkedin.com/in/ramiro-aduviri/" target="_blank">LINKEDIN</a>
 </strong>
 
